@@ -14,4 +14,7 @@
     ﹒
     <a href="https://www.instagram.com/rawwrldd/">instagram</a>
     ﹒
-  
+  </p>
+  <p align="center">  
+Trying to learn to code discord bots / selfbots if u can help please DM me in any of my socials.
+</p>
