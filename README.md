@@ -1,1 +1,3 @@
-   ![image0 (1)](https://user-images.githubusercontent.com/65842579/113612051-edea4e00-9614-11eb-8101-89723e71e6a2.gif)
+   ![ezgif-7-845264e411ba](https://user-images.githubusercontent.com/65842579/113913585-21a6ae80-97a2-11eb-84f5-24051e7e1e30.gif)
+
+• [discord](https://discordapp.com/users/786105517004292126/) •	
