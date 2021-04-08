@@ -10,7 +10,7 @@
     ﹒
     <a href="https://discordapp.com/users/786105517004292126/">discord</a>
     ﹒
-    <a href="https://twitter.com/rawmaruchan">twitter</a>
+    <a href="https://twitter.com/RawWRLD">twitter</a>
     ﹒
     <a href="https://www.instagram.com/rawwrldd/">instagram</a>
     ﹒
