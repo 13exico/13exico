@@ -4,7 +4,7 @@
  <p align="center">
     raw
  <p align="center">  
-<img src="https://komarev.com/ghpvc/?username=rawwrld&color=grey">
+<img src="![](https://komarev.com/ghpvc/?username=rawwrld&color=blue&style=flat-square)">
 </p>
 <p align="center"> 
     ﹒
