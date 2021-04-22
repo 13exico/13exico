@@ -3,9 +3,6 @@
 </p>
  <p align="center">
     raw
- <p align="center">  
-<img src="![](https://komarev.com/ghpvc/?username=rawwrld&color=blue&style=flat-square)">
-</p>
 <p align="center"> 
     ﹒
     <a href="https://discordapp.com/users/786105517004292126/">discord</a>
