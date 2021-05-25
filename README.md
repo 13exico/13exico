@@ -1,11 +1,11 @@
 <p align="center">  
-<img src="https://user-images.githubusercontent.com/65842579/113913585-21a6ae80-97a2-11eb-84f5-24051e7e1e30.gif">
+<img src="https://images-ext-2.discordapp.net/external/oYdNaqsFvhVuMuocxLeis72q_dtcRdxA8MwDfFCqQGY/https/media.discordapp.net/attachments/722976851751993365/827718485433384960/ezgif-2-177618fad56f.gif">
 </p>
  <p align="center">
     raw
 <p align="center"> 
     ﹒
-    <a href="https://discordapp.com/users/786105517004292126/">discord</a>
+    <a href="https://discordapp.com/users/831193551614115881/">discord</a>
     ﹒
     <a href="https://twitter.com/RawWRLD">twitter</a>
     ﹒
