@@ -1,11 +1,11 @@
 <p align="center">  
-<img src="https://images-ext-2.discordapp.net/external/oYdNaqsFvhVuMuocxLeis72q_dtcRdxA8MwDfFCqQGY/https/media.discordapp.net/attachments/722976851751993365/827718485433384960/ezgif-2-177618fad56f.gif">
+<img src="https://cdn.discordapp.com/attachments/753282592534429867/868482494197018654/image3.gif">
 </p>
  <p align="center">
-    13exico
+    13
 <p align="center"> 
     ﹒
-    <a href="https://discordapp.com/users/831193551614115881/">discord</a>
+    <a href="https://discordapp.com/users/786105517004292126/">discord</a>
     ﹒
     <a href="https://twitter.com/RawWRLD">twitter</a>
     ﹒
