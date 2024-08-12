@@ -1,5 +1,5 @@
 <p align="center">  
-<img src="https://steamuserimages-a.akamaihd.net/ugc/2097046901227838108/9F01DBC9F64808A7D8970520A7FD6B250874B886/?imw=637&imh=358&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true">
+<img src="https://media1.tenor.com/m/7mmzrIZGaAEAAAAC/ken-carson-destroy-lonely.gif">
 </p>
  <p align="center">
     13
