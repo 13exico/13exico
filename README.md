@@ -1,5 +1,5 @@
 <p align="center">  
-<img src="https://media1.tenor.com/m/7mmzrIZGaAEAAAAC/ken-carson-destroy-lonely.gif">
+<img src="https://tenor.com/view/ken-carson-destroy-lonely-prince3236-president-music-video-gif-17179459807149975553">
 </p>
  <p align="center">
     13
