@@ -1,5 +1,5 @@
 <p align="center">  
-<img src="https://tenor.com/view/ken-carson-jennifer%27s-body-gif-3782885645883400560">
+<img src="https://media1.tenor.com/m/NH-Cc8zN4XAAAAAC/ken-carson-jennifer%27s-body.gif">
 </p>
  <p align="center">
     13
