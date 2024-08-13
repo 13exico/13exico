@@ -1,5 +1,5 @@
 <p align="center">  
-<img src="https://tenor.com/uDegRZVrB49.gif">
+<img src="[https://tenor.com/uDegRZVrB49.gif](https://media1.tenor.com/m/_IFhDmOTxucAAAAd/ken-carson-opium.gif)">
 </p>
  <p align="center">
     13
